@@ -1,1 +1,1 @@
-Hi I am Thomas Turner, I am an engineering student at the University of Oxford.
+Hi I am Thomas Turner, I am an engineering graduate from the University of Oxford.
